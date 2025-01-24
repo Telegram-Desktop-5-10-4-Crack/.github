@@ -1,6 +1,6 @@
 ## Telegram Desktop 2.1.10 Full Version Free Download 2022
 
-Telegram Desktop Crack
+!--> Telegram Desktop Crack
 
 Telegram Desktop (Repack & Portable)  is a program for Windows that allows you to use one of the most popular services for communication at a distance.
 
